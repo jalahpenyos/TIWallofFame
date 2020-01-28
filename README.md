@@ -12,4 +12,4 @@ Daryl D | daryldenaga | Spring 2019
 Talon S | Talok131 | Spring 2019
 Wyatt H | Wyatth224 | Spring 2019
 Spencer F | sfapi1 | Spring 2019
-
+Justin S | JustinSpenker | Spring 2020
