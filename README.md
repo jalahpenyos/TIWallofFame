@@ -19,5 +19,5 @@ Anna H | annanhoang | Spring 2020
 Nathan P | Safyire | Spring 2020
 Justin S | JustinSpenker | Spring 2020
 Katey W | kateywillick9 | Spring 2020
+Trey D | PostBoi | Spring 2020
 Koa B | MunchingPotatoes | Spring 2020
-
