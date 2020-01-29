@@ -18,3 +18,4 @@ William L | william-lundgren | Spring 2020
 Anna H | annanhoang | Spring 2020
 Nathan P | Safyire | Spring 2020
 Justin S | JustinSpenker | Spring 2020
+Katey W | kateywillick9 | Spring 2020
